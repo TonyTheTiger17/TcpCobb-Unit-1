@@ -1,8 +1,7 @@
 # Reviews.HTML5
 
 
-<p>Thomas Watkins
-Christine Watkins
+<p>Christine Watkins
 5.0 star rating
 10/18/20
 Bedroom Finishing Touches
