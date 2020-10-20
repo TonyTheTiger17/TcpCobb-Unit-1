@@ -6,7 +6,7 @@ ChristineVerified Buyer
 5.0 star rating
 10/18/20
 Bedroom Finishing Touches
-Review by Christine on 18 Oct 2020 reviews stating that Urban Interieurs I worked with my wonderful designer Jacinth to finish off my master - she knew exactly the vibe I was going for and listened to exactly what I wanted, even revising several times based on size and a change I made towards the end. First time using Havenly and I was so very happy!</P>
+Review by Christine  on 18 Oct 2020 reviews stating that Urban Interieurs I worked with my wonderful designer Jacinth to finish off my master - she knew exactly the vibe I was going for and listened to exactly what I wanted, even revising several times based on size and a change I made towards the end. First time using Havenly and I was so very happy!</P>
 
 <p>Rachel W.Verified Buyer
 5.0 star rating
